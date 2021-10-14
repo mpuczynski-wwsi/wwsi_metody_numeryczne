@@ -1,0 +1,1 @@
+https://mathgarage.wordpress.com/2012/12/21/approximating-square-root-of-nature-numbers-with-pells-equation/
